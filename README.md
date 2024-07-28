@@ -15,7 +15,7 @@
 | 18-07-2024 | Prof. Harpal Singh Pannu | Told about the history of Punjabi literature and motivated us to stay connected with it. |
 | 18-07-2024 | Department Visit | DEPARTMENT VISIT. |
 | 19-07-2024 | Peer Interaction | Told us about college website. |
-| 19-07-2024 | Prof. Bhogal| Made us greet with academic excellence. |
+| 19-07-2024 | Prof. Bhogal | Made us greet with academic excellence. |
 | 22-07-2024 | Dr. Sangeeta | Explained us about sustainable development. |
 | 22-07-2024 | Causmic Club | We were told about benifits of joining causmic club amd had an interaction with our seniors. | 
 | 23-07-2024 | Gym trainer | We all had meet and greet with MR. MANAK who is a esteemed personality , a gym owner and motivated us to stay fit and healthy throughouyt our life. |
